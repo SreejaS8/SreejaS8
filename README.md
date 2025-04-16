@@ -1,5 +1,5 @@
-## NAMASKARAM!! I'm Sreeja
-## Welcome to my github, Here's a little glimpse about me🌠
+## NAMASKARAM!! I'm Sreeja💕
+## "She remembered who she was and the game changed." – Lalah Delia
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/sreeja-sistla-9a4996255/) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:sreeja8104@gmail.com) 
